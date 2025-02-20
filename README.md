@@ -1,1 +1,1 @@
-![jumping-cat](https://media1.tenor.com/m/_hUq1BSUsiMAAAAC/cat-cute.gif)
+![jumping-cat](https://media1.tenor.com/m/PpDtmuVnEXUAAAAC/maxwell-cat.gif)
